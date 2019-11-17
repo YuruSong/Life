@@ -9,7 +9,7 @@ Hopefully, I will get enough passion for a marathon some day before I turn too o
 
 
 ## Photos
-Without enough time and bucks for a DSLR camera, I can only picture the occasionally artistic world with my iPhone. But it is already statisfactory to me --
+Without enough time and dollars for a DSLR camera, I can only picture the occasionally artistic world with my iPhone. But it is already statisfactory to me --
 
 #### McCorwick Palace, SfN 2019 Venue, Chicago
 ![](IMG_7261.JPG)
