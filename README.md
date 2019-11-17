@@ -21,7 +21,7 @@ Without enough time and dollars for a DSLR camera, I can only picture the occasi
 ![](IMG_4644.JPG)
 
 ## Informative conversations
-Gradually I feel talking consumes energy. Therefore, I am practicing being concise and perfer the conversations to be so on a daily basis. So please forgive me being quiet in some occasion, I just have difficulty making response. 
+Gradually I feel talking consumes energy. Therefore, I am practicing being concise and perfer the conversations to be so on a daily basis. So please forgive me being quiet in some occasion, I am just overwhelmed by the complexity in the sentences and have difficulty making response. 
 
 Also I would be extremely happy after having inspiring chat with some (usually senior) people.
 
