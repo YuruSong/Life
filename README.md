@@ -3,7 +3,23 @@ This daily (fairly speaking weekly) life ritual dates back to my high school sop
 
 The accumulated distance now is over 800km. If no accident happens (I definitely expect so), it will grow quickly.
 Hopefully, I will get enough passion for a marathon some day before I turn too old (now I am already old being 20 !).
-![](IMG_7220.jpg){#id .class width=30 height=20px}
+![](IMG_7220.jpg)
 
 
-##
+## Photos
+Without enough time and bucks for a DSLR camera, I can only picture the occasionally artistic world with my iPhone. But it is already statisfactory to me --
+
+#### McCorwick Palace, SfN 2019 Venue, Chicago
+![](IMG_7261.JPG)
+#### after sunset at La Jolla beach, San Diego
+![](IMG_5368.jpg)
+#### sunflower at Dr. Wang's lab, UC San Diego
+![](IMG_7154.jpg)
+#### sunflowers at graduate student office, Shanghai Jiao Tong University, Shanghai
+![](IMG_4644.jpg)
+
+## Informative conversations
+Gradually I feel talking consumes energy. Therefore, I am practicing being concise and perfer the conversations to be so on a daily basis. So please forgive me being quite in some occasion, I just have difficulty making response. 
+
+## Oatmeals, Poke bowls, Greek salad ... and more to be explored! 
+And struggling to eat healthy.
