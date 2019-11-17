@@ -21,5 +21,5 @@ Without enough time and bucks for a DSLR camera, I can only picture the occasion
 ## Informative conversations
 Gradually I feel talking consumes energy. Therefore, I am practicing being concise and perfer the conversations to be so on a daily basis. So please forgive me being quite in some occasion, I just have difficulty making response. 
 
-## Oatmeals, Poke bowls, Greek salad ... and more to be explored! 
+## Espresso beverage, Oatmeals, Poke bowls, Greek salad ... and more to be explored! 
 And struggling to eat healthy.
