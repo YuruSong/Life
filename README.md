@@ -1,3 +1,5 @@
+Now that I am old enough to talk about personal preference, I would like to list a few here. I still feel the huge plasticity/variability in my decision makings. Anyway, these are the most enduring ones -- 
+
 ## Running
 This daily (fairly speaking weekly) life ritual dates back to my high school sophomore, when my friend encouraged me run one circle around the field track. The subtle feeling of being able to run longer and longer keeps me on the road. This habit just sticks with me for 5 years. About two years ago, I began using APP to record this reward seeking behavior.  
 
@@ -20,6 +22,8 @@ Without enough time and bucks for a DSLR camera, I can only picture the occasion
 
 ## Informative conversations
 Gradually I feel talking consumes energy. Therefore, I am practicing being concise and perfer the conversations to be so on a daily basis. So please forgive me being quite in some occasion, I just have difficulty making response. 
+
+Also I would be extremely happy after having inspiring chat with some (usually senior) people.
 
 ## Espresso beverage, Oatmeals, Poke bowls, Greek salad ... and more to be explored! 
 And struggling to eat healthy.
