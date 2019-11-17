@@ -16,7 +16,7 @@ Without enough time and bucks for a DSLR camera, I can only picture the occasion
 #### sunflower at Dr. Wang's lab, UC San Diego
 ![](IMG_7154.jpg)
 #### sunflowers at graduate student office, Shanghai Jiao Tong University, Shanghai
-![](IMG_4644.jpg)
+![](IMG_4644.JPG)
 
 ## Informative conversations
 Gradually I feel talking consumes energy. Therefore, I am practicing being concise and perfer the conversations to be so on a daily basis. So please forgive me being quite in some occasion, I just have difficulty making response. 
