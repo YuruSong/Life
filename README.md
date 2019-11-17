@@ -1,12 +1,12 @@
 Now that I am old enough to talk about personal preference, I would like to list a few here. I still observe the huge plasticity/variability in my decision makings. Anyway, these are the most enduring ones -- 
 
 ## Running
-This daily (fairly speaking, weekly) life ritual dates back to my high school sophomore, when my friend encouraged me run one circle around the field track. The subtle good feeling of being able to run longer and longer keeps me hitting the road. This habit just sticks with me for the past 5 years. About two years ago, I began using APP to record this reward seeking behavior.  
+This daily (fairly speaking, weekly) life ritual dates back to my high school sophomore, when my friend encouraged me run one circle around the field track. The subtle good feeling of being able to run longer and longer keeps me hitting the road. This habit just sticks with me for the past 5 years.   
 
-The accumulated distance now is over 800km. If no accident happens (I definitely expect so), it will grow quickly.
-Hopefully, I will get enough passion for a marathon some day before I turn too old (now I am already old being 20 !).
+About two years ago, I began using APP to record this reward seeking behavior.The accumulated distance now is over 800km. If no accident happens (I definitely expect so), it will grow quickly.
+
 ![](IMG_7220.jpg)
-
+Hopefully, I will get enough passion for a marathon some day before I turn too old (now I am already old being 20 !).
 
 ## Photos
 Without enough time and dollars for a DSLR camera, I can only picture the occasionally artistic world with my iPhone. But it is already statisfactory to me --
