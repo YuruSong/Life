@@ -25,5 +25,14 @@ Gradually I feel talking consumes energy. Therefore, I am practicing being conci
 
 Also I would be extremely happy and vocal when having inspiring chats with some (usually senior) people.
 
-## Espresso beverage, Oatmeals, Poke bowls, Greek salad ... and more to be explored! 
+## Doing 'Browian motion' in big cities
+I have been to a few:
+UK: London, Oxford;
+US: New York, San Diego, Boston, Philly, Hanover, Chicago...;
+Germany: Frankfurt;
+PRC: Beijing, Shanghai, Suzhou, Nanjing, Hong Kong, Guangzhou, Mohe(the northernmost Chinese city!)...
+
+## Foods
+Esspresso beverage, Oatmeal, Poke bowls, Greek salad ... and more to be explored! 
 And struggling to eat healthy.
+
